@@ -5,7 +5,7 @@ Misinformation
 
 [News](https://isakensmi.github.io/W!.html)
 
-[Science](https://isakensmi.github.io/W!.html)
+[Science](https://isakensmi.github.io/W@.html)
 
 [Maths](https://isakensmi.github.io/W!.html)
 
