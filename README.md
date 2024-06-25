@@ -7,7 +7,7 @@ Misinformation
 
 [Science](https://isakensmi.github.io/W@.html)
 
-[Maths](https://isakensmi.github.io/W!.html)
+[Maths](https://isakensmi.github.io/W#.html)
 
 [English](https://isakensmi.github.io/W!.html)
 
