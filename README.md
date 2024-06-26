@@ -11,4 +11,4 @@ Misinformation
 
 [English](https://isakensmi.github.io/W^.html)
 
-[Pop-Culture](https://isakensmi.github.io/W!.html)
+[Pop-Culture](https://isakensmi.github.io/W&.html)
